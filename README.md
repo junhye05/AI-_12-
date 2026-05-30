@@ -36,5 +36,21 @@ https://github.com/user-attachments/assets/b817cde1-d5f6-4401-8dcc-2a42764342f5
 <br>
 <br>
 
+## 실습 3
+
+### 뮤직비디오 클립
+
+
+<br>
+
+### 브랜드 홍보 영상
+
+https://github.com/user-attachments/assets/ba30b28b-53b6-4f3f-ab5f-3b728ba5229f
+
+<br>
+
+### 스토리 애니메이션
+
+
 
 
